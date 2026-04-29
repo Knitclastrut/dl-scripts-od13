@@ -1,4 +1,4 @@
-
+Experience deadlock scripts like never before with deadlock scripts vip Cheats - instant hero lock-on and enemy hero attack range, the #1 cheats. Includes instant hero lock-on and
 
 
 
